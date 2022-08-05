@@ -1,1 +1,1 @@
-Representación de la infancia en la publicidad esañola
+Representación de la infancia en la publicidad española
